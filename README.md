@@ -1,5 +1,5 @@
 # 💫 About Me:
-Recently graducate fresher B. Tech in Industrial Internet of Things from Guru Gobind Singh Indraprastha University, New Delhi; where I'm developed a strong foundation in technical concepts along with analytical thinking and problem solving capabilities.<br>I am looking for an job of entry level or associate role and Data analytics and Full-Stack Development.<br>
+A Recent B. Tech graduate fresher in Industrial Internet of Things from Guru Gobind Singh Indraprastha University, New Delhi; where I'm developed a strong foundation in technical concepts along with analytical thinking and problem solving capabilities. I am a quick learner, highly adaptable and committed to continuous learning and professional development. i posses a proactive approach towards acquiring new skills and delivering quality outcomes.<br>I am looking for an job of entry level or associate role and Data analytics and Full-Stack Development.<br>
 
 
 ## 🌐 Socials:
